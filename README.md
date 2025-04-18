@@ -71,7 +71,7 @@
 
 ## 📫 Контакты
 
-- Telegram: [@tsomm](https://t.me/your_telegram)
+- Telegram: [@tsomll](https://t.me/tsomll)
 - Email: adelvalishinaa@yandex.ru
 
 ---
